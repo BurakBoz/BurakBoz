@@ -11,6 +11,7 @@ I can optimize your workflow using **CRM** and **CMS** systems and create a more
 
 I am fluent in both Turkish and English. 
 If you need a professional web application, feel free to contact me.
+
 Whether personal or corporate, I will do my best to provide you with the best solution.
 
 ![logos.png](https://project-assets.showwcase.com/64032/1671074580078-logos.png)
